@@ -1,2 +1,12 @@
 # conflictTests
 test
+aFSDFGSDF
+SDFGHG
+GF
+GFHN
+
+GFN
+FHBG
+NBV 
+B
+NCV
